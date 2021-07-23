@@ -1,4 +1,4 @@
-## 我是つつ，一个初三废物
+## 我是つつ，一个高一废物
 博客 [https://tsutsu.cc](https://tsutsu.cc)
 Telegram [https://t.me/Ox208](https://t.me/Ox208)
 其他联系方式等 [https://tsutsu.cc/about.html](https://tsutsu.cc/about.html)
