@@ -1,7 +1,7 @@
 ## 我是つつ，一个高一废物
-博客 [https://tsutsu.cc](https://tsutsu.cc)
+博客 [https://blog,tsutsu.one](https://blog.tsutsu.one)
 Telegram [https://t.me/Ox208](https://t.me/Ox208)
-其他联系方式等 [https://tsutsu.cc/about.html](https://tsutsu.cc/about.html)
+其他联系方式等 [https://blog.tsutsu.one/about.html](https://blog.tsutsu.one/about.html)
 <!--
 **lhl77/lhl77** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
